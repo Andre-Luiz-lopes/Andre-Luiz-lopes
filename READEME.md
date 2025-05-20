@@ -4,4 +4,8 @@
 - 📫 Caso queria falar comigo, segue abaixo meu Email.
                 Andrelps844@gmail.com
 
+ANDRE VOCE ESQUECEU SUA CONTA AQUI ESOU VENDO TUDO
+
+![image](https://github.com/user-attachments/assets/f7e066ae-98bf-47eb-82fc-f7237ce5235b)
+
 
